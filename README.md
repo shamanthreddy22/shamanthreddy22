@@ -38,3 +38,4 @@ Supply Chain Analyst with 4+ years of experience managing large-scale inventory 
 
 🔗 Tableau: https://public.tableau.com/app/profile/shamanth.reddy/vizzes
 🔗 LinkedIn:www.linkedin.com/in/shamanth9
+🔗Phone: +1 217(758)-5010
